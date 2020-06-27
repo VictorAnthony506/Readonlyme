@@ -1,2 +1,2 @@
 # Readonlyme
-Just Learning 
+Just learning and to have fun
